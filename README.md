@@ -1,9 +1,8 @@
 # test
 **test** *test* test  
+  
 [test](github.com/worldsfiinest)    
-![titus ily](https://static.wikia.nocookie.net/warhammer40k/images/a/a8/WardenofUltramarDemetrianTitus.png/revision/latest?cb=20251111153935)   
-$${/color{pink}test}$$   
+  
+![titus ily](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRePFhzBY4NV5FlQJRTnDKbmkEHZdjxnAYJmuni0rS3PQ&s=10)   
 
-<p align="center">test.</p>  
-$$\color{pink}\textrm{Test}$$  
-$${\color{#77ca92}test}$$
+<p align="center">i fucking hate this shit bro.</p>  
