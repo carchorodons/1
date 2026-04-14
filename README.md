@@ -26,4 +26,4 @@
   > [!CAUTION]
 > <p align="center"> but you still need to show me why they call you robloxias strongest soldier. </p>
   
-![div](https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png)
+![div](https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png)
