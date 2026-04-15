@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" height="100" width="1200">
+  <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" width="1200">
 </p>
 
 > [!CAUTION]
@@ -23,8 +23,12 @@
 <p align="center"> IM THE MAN UPHOALDING THIS SECTOR OF THE DIVISIONㅤㅤHOW ABOUT A 'LIL INTRODUCTION OF MYSELF? </p>
 
 
-![div](https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png)
-![div](https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png)  
+<p align="center">
+  <img src="https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png" width="1200">
+</p>
+<p align="center">
+  <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" width="1200">
+</p> 
 <p align="center">
   <img src="https://i.postimg.cc/SRRrJngZ/Untitled144-20260414161019.png" width="300">
 </p>
@@ -41,4 +45,6 @@
   > [!CAUTION]
 > <p align="center"> but you still need to show me why they call you robloxias strongest soldier. </p>
   
-![div](https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png)
+<p align="center">
+  <img src="https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png" width="1200">
+</p>
