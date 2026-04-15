@@ -39,7 +39,11 @@
 
 ㅤㅤㅤㅤㅤ<p align="right"> ![pix](https://64.media.tumblr.com/42f4dbb5dd83f499e2fbcae16e60a4a8/f651789587d2564c-e5/s75x75_c1/e2f14c9403ec86d25118d9c4ae9655ec042626a3.gif) C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCUF + DO NOT SEND FRIEND/PARTY REQ UNLESS I KNOW YOUㅤㅤNEARLY ALL THE TIME OFFTAB SO PLEASE W2IㅤㅤHANG AROUND MAINLY AT DOCKS/WITH MOOTIESㅤㅤPLEASE DONT TAKE INSPO OF MY SKINS UNLESS IVE GIVEN CLEAR PERMISSIONㅤㅤPREFER TO TALK IN WHISPER/PARTY CHATS
   
-ㅤㅤㅤㅤㅤ<p align="center"> ![5](https://files.catbox.moe/5d32o8.gif) ![6](https://files.catbox.moe/hm6tnl.gif) </p>
+<p align="center">
+  <img src="https://files.catbox.moe/5d32o8.gif" width="150">
+  <img src="https://files.catbox.moe/hm6tnl.gif" width="120">
+</p>
+
 ![gundiv](https://i.postimg.cc/CLyJssLv/Untitled147-20260414163444.png)
 
   > [!CAUTION]
