@@ -55,4 +55,11 @@
   <img src="https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png" width="1200">
 </p>
 
-# <p align="center"> dni + extra info soon </p>
+<p align="center">
+  <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" width="1200">
+</p> 
+
+<p align="center"> THATS ENOUGH 'BOUT ME </p>
+<p align="center"> WHY DONT I SHOW SOME OF MY GREAT BUDDIES AROUND 'ERE YA? </p>
+
+![test](https://i.postimg.cc/fyPv1HLN/Untitled148-20260416072233.png)
