@@ -1,4 +1,6 @@
-![div](https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png)  
+<p align="center">
+  <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" height="100" width="1200">
+</p>
 
 > [!CAUTION]
 > <p align="center"> quite impressive performance, guest1337. you managed to survive 'till the end. </p>
@@ -9,8 +11,14 @@
 
 ![gundiv](https://i.postimg.cc/d1zFBHFY/Untitled140-20260414142811.png)
 
-ㅤㅤㅤㅤㅤ<p align="center"> ![1](https://files.catbox.moe/cs0q1r.gif) ![2](https://files.catbox.moe/tbu0il.gif) ![3](https://files.catbox.moe/kp2wpr.webp) ![4](https://files.catbox.moe/5eqdjt.gif) </p>
+<p align="center">
+  <img src="https://files.catbox.moe/cs0q1r.gif" width="110" />
+  <img src="https://files.catbox.moe/tbu0il.gif" width="200" />
+  <img src="https://files.catbox.moe/kp2wpr.webp" width="100" />
+  <img src="https://files.catbox.moe/5eqdjt.gif" width="103" />
+</p>
 
+  
 <p align="center"> GREETINGS SOLDIER </p>
 <p align="center"> IM THE MAN UPHOALDING THIS SECTOR OF THE DIVISIONㅤㅤHOW ABOUT A 'LIL INTRODUCTION OF MYSELF? </p>
 
