@@ -61,5 +61,3 @@
 
 <p align="center"> THATS ENOUGH 'BOUT ME </p>
 <p align="center"> WHY DONT I SHOW SOME OF MY GREAT BUDDIES AROUND 'ERE YA? </p>
-
-![test](https://i.postimg.cc/fyPv1HLN/Untitled148-20260416072233.png)
