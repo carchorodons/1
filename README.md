@@ -14,7 +14,7 @@
 <p align="center">
   <img src="https://files.catbox.moe/cs0q1r.gif" width="110" />
   <img src="https://files.catbox.moe/tbu0il.gif" width="200" />
-  <img src="https://files.catbox.moe/kp2wpr.webp" width="100" />
+  <img src="https://postimg.cc/zVZVvzQG" width="100" /> need fix
   <img src="https://files.catbox.moe/5eqdjt.gif" width="103" />
 </p>
 
@@ -63,10 +63,12 @@
 > <p align="center"> Don't worry soldier, once you die, </p>
 
 <p align="center"> THATS ENOUGH 'BOUT ME </p>
-<p align="center"> WHY DONT I SHOW SOME OF MY GREAT BUDDIES AROUND 'ERE YA? </p>
+<p align="center"> WHY DONT I SHOW SOME OF MY GREAT BUDDIES AROUND 'ERE YA? CLICK THEIR DOGTAGS FOR THEIR PROFILE! </p>
 
 ![ammodiv](https://i.ibb.co/nqFJLpjq/Untitled149-20260416131502.png)
 
-<img align="right" width="100" src="https://i.postimg.cc/CLyJssLv/Untitled147-20260414163444.png">
-<p align="right"> text </p>
-<br clear="right" />
+<a href="https://github.com/pizzagamebeta">
+  <img align="left" width="100" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
+</a>
+test
+<br clear="left" />
