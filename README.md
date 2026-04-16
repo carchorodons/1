@@ -88,8 +88,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE
  <a href="https://github.com/pidawn">
   <img align="right" width="240" src="https://i.ibb.co/HLZFgwcc/Untitled154-20260416142103.png">
 </a>
-<p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/6pTfBmH9/EC709174-F7D5-45A8-944C-3D16C01F9843.gif" width="30"> </p>
-<p align="right"> A MAN ONCE SAID ABOUT THIS GUY... GOT TO BE THE BEST PIRATE IVE EVER SEEN ㅤㅤAND TRULY! TRUE WORDS SAID! ㅤㅤ
+<p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/6pTfBmH9/EC709174-F7D5-45A8-944C-3D16C01F9843.gif" width="30"> A MAN ONCE SAID ABOUT THIS GUY... GOT TO BE THE BEST PIRATE IVE EVER SEEN ㅤㅤAND TRULY! TRUE WORDS SAID! ㅤㅤ</p>
 <br clear="right" />
  ㅤㅤ ㅤㅤ
    ㅤㅤ ㅤㅤ
@@ -99,3 +98,11 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE
 <p align="left"> <img src="https://i.postimg.cc/59kv5C0z/pgyik0.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/9QZDS94M/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/QMHVd6Qn/3zb9la.gif" width="30"> </p>
 text
 <br clear="left" />
+
+  ㅤㅤ ㅤㅤ
+ <a href="https://github.com/pidawn">
+  <img align="right" width="240" src="https://i.ibb.co/HLZFgwcc/Untitled154-20260416142103.png">
+</a>
+<p align="right"> A MAN ONCE SAID ABOUT THIS GUY... GOT TO BE THE BEST PIRATE IVE EVER SEEN ㅤㅤAND TRULY! TRUE WORDS SAID! ㅤㅤ</p>
+<br clear="right" />
+<p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/6pTfBmH9/EC709174-F7D5-45A8-944C-3D16C01F9843.gif" width="30"> </p>
