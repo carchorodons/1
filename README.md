@@ -70,7 +70,6 @@
 <p align="center">
   <img src="https://i.postimg.cc/T1JZdRvt/Untitled15-20240905155823.png" height="" width="1000">
 </p> 
- ㅤㅤ
 
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
