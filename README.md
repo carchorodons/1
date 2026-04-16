@@ -80,15 +80,15 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
  <a href="https://github.com/pidawn">
-  <img align="right" width="210" src="https://i.ibb.co/HLZFgwcc/Untitled154-20260416142103.png">
+  <img align="right" width="240" src="https://i.ibb.co/HLZFgwcc/Untitled154-20260416142103.png">
 </a>
-<p align="right"> <img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="180"> ㅤㅤ<img src="https://i.postimg.cc/L8qLcZX6/IMG-2182.png" width="100"> ㅤㅤ<img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/6pTfBmH9/EC709174-F7D5-45A8-944C-3D16C01F9843.gif" width="50"> </p>
-<p align="right"> test
+<p align="right"> <img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="180"> ㅤㅤ<img src="https://i.postimg.cc/qqY3p9Yw/3af35v.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/6pTfBmH9/EC709174-F7D5-45A8-944C-3D16C01F9843.gif" width="50"> </p>
+<p align="right"> A MAN ONCE SAID ABOUT THIS GUY... GOT TO BE THE BEST PIRATE IVE EVER SEEN ㅤㅤAND TRULY! TRUE WORDS SAID! ㅤㅤ
 <br clear="right" />
  ㅤㅤ ㅤㅤ
    ㅤㅤ ㅤㅤ
 <a href="https://github.com/embracethegrace">
-  <img align="left" width="230" src="https://i.ibb.co/Hp4FLc81/Untitled151-20260416135759.png">
+  <img align="left" width="250" src="https://i.ibb.co/Hp4FLc81/Untitled151-20260416135759.png">
 </a>
 <p align="left"> <img src="https://i.postimg.cc/59kv5C0z/pgyik0.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/Bnh7gFzL/IMG-5219.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/QMHVd6Qn/3zb9la.gif" width="50"> </p>
 text
