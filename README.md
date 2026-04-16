@@ -59,5 +59,17 @@
   <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" width="1200">
 </p> 
 
+> [!CAUTION]
+> <p align="center"> Don't worry soldier, once you die, </p>
+
 <p align="center"> THATS ENOUGH 'BOUT ME </p>
 <p align="center"> WHY DONT I SHOW SOME OF MY GREAT BUDDIES AROUND 'ERE YA? </p>
+
+![ammodiv](https://i.postimg.cc/L6SPfLJ4/Untitled149-20260416131502.png)
+
+<img align="right" width="100" src="https://i.postimg.cc/CLyJssLv/Untitled147-20260414163444.png">
+<p align="right"> text </p>
+<br clear="right" />
+
+
+
