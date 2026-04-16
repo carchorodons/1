@@ -14,7 +14,7 @@
 <p align="center">
   <img src="https://files.catbox.moe/cs0q1r.gif" width="110" />
   <img src="https://files.catbox.moe/tbu0il.gif" width="200" />
-  <img src="https://postimg.cc/zVZVvzQG" width="100" /> need fix
+  <img src="https://i.postimg.cc/xTqHsqyM/gray.gif" width="100" />
   <img src="https://files.catbox.moe/5eqdjt.gif" width="103" />
 </p>
 
@@ -62,13 +62,26 @@
 > [!CAUTION]
 > <p align="center"> Don't worry soldier, once you die, </p>
 
+![ammodiv](https://i.ibb.co/nqFJLpjq/Untitled149-20260416131502.png)
+
 <p align="center"> THATS ENOUGH 'BOUT ME </p>
 <p align="center"> WHY DONT I SHOW SOME OF MY GREAT BUDDIES AROUND 'ERE YA? CLICK THEIR DOGTAGS FOR THEIR PROFILE! </p>
 
-![ammodiv](https://i.ibb.co/nqFJLpjq/Untitled149-20260416131502.png)
+<p align="center">
+  <img src="https://i.postimg.cc/T1JZdRvt/Untitled15-20240905155823.png" height="" width="1000">
+</p> 
+ ㅤㅤ
 
 <a href="https://github.com/pizzagamebeta">
-  <img align="left" width="100" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
+  <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-test
+<p align="left"> <img src="https://i.postimg.cc/59kv5C0z/pgyik0.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/Bnh7gFzL/IMG-5219.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/QMHVd6Qn/3zb9la.gif" width="50"> </p>
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE WONT SUCK YOUR BLOOD SHE LIKES CARROTS MORE! ㅤㅤTHE DAMN KITCHEN NEEDS TO RESTRICT HER ASS FROM EATING IT ALL... DOES SHE GIVE A DAMN? 'COURSE NOT
 <br clear="left" />
+ ㅤㅤ
+<a href="https://github.com/pizzagamebeta">
+  <img align="right" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
+</a>
+<p align="right"> <img src="https://i.postimg.cc/59kv5C0z/pgyik0.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/Bnh7gFzL/IMG-5219.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/QMHVd6Qn/3zb9la.gif" width="50"> </p>
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE WONT SUCK YOUR BLOOD SHE LIKES CARROTS MORE! ㅤㅤTHE DAMN KITCHEN NEEDS TO RESTRICT HER ASS FROM EATING IT ALL... DOES SHE GIVE A DAMN? 'COURSE NOT
+<br clear="right" />
