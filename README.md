@@ -65,11 +65,8 @@
 <p align="center"> THATS ENOUGH 'BOUT ME </p>
 <p align="center"> WHY DONT I SHOW SOME OF MY GREAT BUDDIES AROUND 'ERE YA? </p>
 
-![ammodiv](https://i.postimg.cc/L6SPfLJ4/Untitled149-20260416131502.png)
+![ammodiv](https://i.ibb.co/nqFJLpjq/Untitled149-20260416131502.png)
 
 <img align="right" width="100" src="https://i.postimg.cc/CLyJssLv/Untitled147-20260414163444.png">
 <p align="right"> text </p>
 <br clear="right" />
-
-
-
