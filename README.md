@@ -68,7 +68,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 
 ![ammodiv](https://i.ibb.co/nqFJLpjq/Untitled149-20260416131502.png)
 
-<p align="center"> THATS ENOUGH 'BOUT ME </p>
+<p align="center"> THATS ENOUGH ABOUT ME </p>
 <p align="center"> WHY DONT I SHOW SOME OF MY GREAT BUDDIES AROUND 'ERE YA? CLICK THEIR DOGTAGS FOR THEIR PROFILE! </p>
 
 <p align="center">
@@ -78,7 +78,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-<p align="left"> <img src="https://i.postimg.cc/59kv5C0z/pgyik0.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/Bnh7gFzL/IMG-5219.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/QMHVd6Qn/3zb9la.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/cL3NBMKN/red.gif" width="180"> </p>
+<p align="left"> <img src="https://i.postimg.cc/59kv5C0z/pgyik0.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/cL3NBMKN/red.gif" width="180"> ㅤㅤ<img src="https://i.postimg.cc/Bnh7gFzL/IMG-5219.gif" width="50"> </p>
 A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE WONT SUCK YOUR BLOOD SHE LIKES CARROTS MORE! ㅤㅤTHE DAMN KITCHEN NEEDS TO RESTRICT HER ASS FROM EATING IT ALL... DOES SHE GIVE A DAMN? 'COURSE NOT
 <br clear="left" />
  ㅤㅤ ㅤㅤ
@@ -86,7 +86,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE
  <a href="https://github.com/pidawn">
   <img align="right" width="240" src="https://i.ibb.co/HLZFgwcc/Untitled154-20260416142103.png">
 </a>
-<p align="right"> <img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="180"> ㅤㅤ<img src="https://i.postimg.cc/qqY3p9Yw/3af35v.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/6pTfBmH9/EC709174-F7D5-45A8-944C-3D16C01F9843.gif" width="50"> </p>
+<p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="50"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="180"> ㅤㅤ<img src="https://i.postimg.cc/6pTfBmH9/EC709174-F7D5-45A8-944C-3D16C01F9843.gif" width="50"> </p>
 <p align="right"> A MAN ONCE SAID ABOUT THIS GUY... GOT TO BE THE BEST PIRATE IVE EVER SEEN ㅤㅤAND TRULY! TRUE WORDS SAID! ㅤㅤ
 <br clear="right" />
  ㅤㅤ ㅤㅤ
