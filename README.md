@@ -6,10 +6,10 @@
 > <p align="center"> quite impressive performance, guest1337. you managed to survive 'till the end. </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/VN8ftLwp/Untitled141-20260414152341.png" width="300">
+  <img src="https://i.ibb.co/LhQYpc0X/Untitled141.png" width="300">
 </p>
 
-![gundiv](https://i.postimg.cc/d1zFBHFY/Untitled140-20260414142811.png)
+![gundiv](https://i.ibb.co/pBJxkTTb/Untitled140.png)
 
 <p align="center">
   <img src="https://files.catbox.moe/cs0q1r.gif" width="110" />
@@ -30,7 +30,7 @@
   <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" width="1200">
 </p> 
 <p align="center">
-  <img src="https://i.postimg.cc/SRRrJngZ/Untitled144-20260414161019.png" width="300">
+  <img src="https://i.ibb.co/kVTPbjcY/Untitled144.png" width="300">
 </p>
 
 <p align="center">
@@ -50,7 +50,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
   <img src="https://files.catbox.moe/hm6tnl.gif" width="120">
 </p>
 
-![gundiv](https://i.postimg.cc/CLyJssLv/Untitled147-20260414163444.png)
+![gundiv](https://i.ibb.co/ycDXh535/Untitled147-20260417222317.png)
 
   > [!CAUTION]
 > <p align="center"> but you still need to show me why they call you robloxias strongest soldier. </p>
@@ -81,7 +81,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE WONT SUCK YOUR BLOOD SHE LIKES CARROTS MORE! ㅤㅤTHE DAMN KITCHEN NEEDS TO RESTRICT HER ASS FROM EATING IT ALL... DOES SHE GIVE A DAMN? 'COURSE NOT
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤSHE DOESNT WANT YOUR BLOOD DONT WORRY SHE PREFERS CEREAL! ㅤㅤCEREALS ARE INDEED THE BEST
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
@@ -89,13 +89,13 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤDONT WORRY SHE
  <a href="https://github.com/pidawn">
   <img align="right" width="240" src="https://i.ibb.co/HLZFgwcc/Untitled154-20260416142103.png">
 </a>
-  <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... GOT TO BE THE BEST PIRATE IVE EVER SEEN ㅤㅤWELL HE DID PISS OFF SOME OCTOPUS HILARIOUS STUFF! ㅤㅤ</p>
+  <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN ㅤㅤHELL YEAH HE IS ㅤㅤBE CAREFUL HE MIGHT STEAL YOUR THINGS! </p>
 <br clear="right" />
  ㅤㅤ ㅤㅤ
    ㅤㅤ ㅤㅤ
 <a href="https://github.com/embracethegrace">
   <img align="left" width="250" src="https://i.ibb.co/Hp4FLc81/Untitled151-20260416135759.png">
 </a>
-<p align="left"> <img src="https://i.postimg.cc/59kv5C0z/pgyik0.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/9QZDS94M/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/QMHVd6Qn/3zb9la.gif" width="30"> </p>
-text
+<p align="left"> <img src="https://i.postimg.cc/HLhc0GWg/mo39.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/9QZDS94M/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/mD1c8dhF/mo38.gif" width="30"> </p>
+THIS GUY? ㅤㅤLOTS TO SAY ABOUT 'EM BUT THEY LET ME BE WHO I AM WITHOUT BEING AN A-HOLE! ㅤㅤSINNING FOR THE FUN OF IT! ㅤㅤ
 <br clear="left" />  ㅤㅤ
