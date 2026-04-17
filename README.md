@@ -34,7 +34,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/CLcFnGxy/1107741001134641243.webp" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/HLwVWvyn/white.gif" width="50" /> ㅤㅤ <img src="https://i.postimg.cc/JnRVm01y/hybjch.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/3Rj8CzwG/yjl68s.gif" width="50" />
+  <img src="https://files.catbox.moe/4t50kv.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/WFchz2kd/mo142.png" width="50" /> ㅤㅤ <img src="https://i.postimg.cc/VSyVJMZz/red103.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/3Rj8CzwG/yjl68s.gif" width="50" />
 </p>
 
 YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY BUT DO NOT USE ITㅤㅤMALAYSIANㅤㅤAUTOSEXUAL + AUTOROMANTICㅤㅤHEAVY MASCULINE FEMㅤㅤMASC/NEUTRAL TERMS PREFERRED + USE FEM TERMS IN MODERATIONㅤㅤIM AN ADULT BELOW 15 DNIUCFㅤㅤBLOCK/HIDE FREELY
