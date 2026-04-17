@@ -93,9 +93,9 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤSHE DOESNT WAN
 <br clear="right" />
  ㅤㅤ ㅤㅤ
    ㅤㅤ ㅤㅤ
+<p align="left"> <img src="https://i.postimg.cc/HLhc0GWg/mo39.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/9QZDS94M/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/mD1c8dhF/mo38.gif" width="30"> </p>
 <a href="https://github.com/embracethegrace">
   <img align="left" width="250" src="https://i.ibb.co/Hp4FLc81/Untitled151-20260416135759.png">
 </a>
-<p align="left"> <img src="https://i.postimg.cc/HLhc0GWg/mo39.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/9QZDS94M/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/mD1c8dhF/mo38.gif" width="30"> </p>
 THIS GUY? ㅤㅤLOTS TO SAY ABOUT 'EM BUT THEY LET ME BE WHO I AM WITHOUT BEING AN A-HOLE! ㅤㅤSINNING FOR THE FUN OF IT! ㅤㅤ
 <br clear="left" />  ㅤㅤ
