@@ -64,7 +64,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 </p> 
 
 > [!CAUTION]
-> <p align="center"> Don't worry soldier, once you die, </p>
+> <p align="center"> don't worry soldier, once you die, </p>
 
 <p align="center"> 
   <img src="https://i.ibb.co/ycBWbTWY/Untitled149-20260416173813.png"
@@ -106,3 +106,6 @@ A SINNER? ㅤㅤWELL EVERYONE ISNT A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
 </a>
   <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY? ㅤㅤSHITS AND GIGGLES! </p>
 <br clear="right" />
+
+> [!CAUTION]
+> <p align="center"> you'll live forever in my memories. </p>
