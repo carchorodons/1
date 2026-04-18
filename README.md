@@ -81,7 +81,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤSHE DOESNT WANT YOUR BLOOD DONT WORRY SHE PREFERS CEREAL! ㅤㅤCEREALS ARE INDEED THE BEST
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
@@ -89,7 +89,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤSHE DOESNT WAN
  <a href="https://github.com/pidawn">
   <img align="right" width="240" src="https://i.ibb.co/HLZFgwcc/Untitled154-20260416142103.png">
 </a>
-  <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN ㅤㅤHELL YEAH HE IS ㅤㅤBE CAREFUL HE MIGHT STEAL YOUR THINGS! </p>
+  <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN </p>
 <br clear="right" />
  ㅤㅤ ㅤㅤ
    ㅤㅤ ㅤㅤ
@@ -97,5 +97,12 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL ㅤㅤSHE DOESNT WAN
 <a href="https://github.com/embracethegrace">
   <img align="left" width="250" src="https://i.ibb.co/Hp4FLc81/Untitled151-20260416135759.png">
 </a>
-THIS GUY? ㅤㅤLOTS TO SAY ABOUT 'EM BUT THEY LET ME BE WHO I AM WITHOUT BEING AN A-HOLE! ㅤㅤSINNING FOR THE FUN OF IT! ㅤㅤ
+A SINNER? ㅤㅤWELL EVERYONE ISNT A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
 <br clear="left" />  ㅤㅤ
+
+<p align="right"> <img src="https://files.catbox.moe/1fb8kh.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/cC6fpJY3/red.gif" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
+ <a href="https://github.com/1969bootboy">
+  <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
+</a>
+  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY? ㅤㅤSHITS AND GIGGLES! </p>
+<br clear="right" />
