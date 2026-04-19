@@ -111,7 +111,10 @@ A SINNER? ㅤㅤWELL EVERYONE ISNT A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
   <img src="https://i.postimg.cc/T1JZdRvt/Untitled15-20240905155823.png" height="" width="1000">
 </p> 
 
-<p align="center"> HONORABLE MENTIONS! make div soon </p>
+<p align="center">
+  <img src="https://i.ibb.co/Qj8rBdc8/Untitled160-20260419211050.png" height="" width="500">
+</p> 
+
 <p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤXAVIER ㅤㅤYUNA ㅤㅤLOO </p>
 <div align="center">
 
