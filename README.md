@@ -87,7 +87,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL
   ㅤㅤ ㅤㅤ
 <p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="100"> ㅤㅤ<img src="https://64.media.tumblr.com/e766542b34586c4cfae4e5d4538fb903/0cb1053f7d3f6121-04/s75x75_c1/e50c9e3c2c5fa82c25f25c6c9ad73b4f678112ae.gifv" width="30"> </p>
  <a href="https://github.com/pidawn">
-  <img align="right" width="240" src="https://i.ibb.co/HLZFgwcc/Untitled154-20260416142103.png">
+  <img align="right" width="240" src="https://i.ibb.co/whzB0Mqs/Untitled154-20260416173441.png">
 </a>
   <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN </p>
 <br clear="right" />
@@ -95,7 +95,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL
    ㅤㅤ ㅤㅤ
 <p align="left"> <img src="https://i.postimg.cc/HLhc0GWg/mo39.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/9QZDS94M/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/mD1c8dhF/mo38.gif" width="30"> </p>
 <a href="https://github.com/embracethegrace">
-  <img align="left" width="250" src="https://i.ibb.co/Hp4FLc81/Untitled151-20260416135759.png">
+  <img align="left" width="250" src="https://i.ibb.co/Dg78YtxJ/Untitled151-20260416173330.png">
 </a>
 A SINNER? ㅤㅤWELL EVERYONE ISNT A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
 <br clear="left" />  ㅤㅤ
@@ -107,5 +107,33 @@ A SINNER? ㅤㅤWELL EVERYONE ISNT A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
   <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY? ㅤㅤSHITS AND GIGGLES! </p>
 <br clear="right" />
 
+<p align="center">
+  <img src="https://i.postimg.cc/T1JZdRvt/Untitled15-20240905155823.png" height="" width="1000">
+</p> 
+
+<p align="center"> HONORABLE MENTIONS! make div soon </p>
+<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤXAVIER ㅤㅤYUNA ㅤㅤLOO </p>
+<div align="center">
+
+[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/healthpen) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed)
+
+</div>
+
 > [!CAUTION]
 > <p align="center"> you'll live forever in my memories. </p>
+
+<p align="center">
+  <img src="https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png" width="1200">
+</p>
+
+<p align="center">
+  <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" width="1200">
+</p> 
+
+> [!CAUTION]
+> <p align="center"> ⓘ everything on this readme is made by me except﹕pixels buttons dividers </p>
+> <p align="center"> ⓘ please do not copy nor take inspo unless asked for permission </p>
+
+<p align="center">
+  <img src="https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png" width="1200">
+</p>
