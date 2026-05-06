@@ -37,9 +37,18 @@
   <img src="https://files.catbox.moe/4t50kv.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/WFchz2kd/mo142.png" width="50" /> ㅤㅤ <img src="https://i.postimg.cc/VSyVJMZz/red103.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/3Rj8CzwG/yjl68s.gif" width="50" />
 </p>
 
-YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY BUT DO NOT USE ITㅤㅤMALAYSIANㅤㅤAUTOSEXUAL + AUTOROMANTICㅤㅤHEAVY MASCULINE FEMㅤㅤMASC/NEUTRAL TERMS PREFERRED + USE FEM TERMS IN MODERATIONㅤㅤALTHUMAN / OTHERKINㅤㅤIM AN ADULT BELOW 15 DNIUCFㅤㅤBLOCK/HIDE FREELY
+<p align="center">
+  <img src="https://i.ibb.co/wZs5FJdx/Untitled165-20260423125717.png" width="30" />
+  <img src="https://i.ibb.co/MxQxPmcg/flags2-20260504201407.png" width="28.8" />
+  <img src="https://i.ibb.co/Q3bWV3mL/Untitled165-20260423125712.png" width="30" />
+  <img src="https://i.ibb.co/Q7qQ6VsT/Untitled165-20260423125836.png" width="30" />
+  <img
+</p>
 
-ㅤㅤㅤㅤㅤ<p align="center"> I CAN BE VERY BLUNT AND ROUGH WITH MY LANGUANGEㅤㅤI DO WEIRD/FLIRT/EXPLICIT JOKES TELL ME OFF IF THIS ISNT YOUR THINGㅤㅤAMBIVERTED + SOCIAL ANXIETYㅤㅤI AM PRONE TO AGGRESSIVE BEHAVIOR/ANGER TENDENCIES AND RAPID MOOD CHANGESㅤㅤI HAVE A HARD TIME TRUSTING PEOPLE BUT I AM NEVER MEAN OR RUDE ON PURPOSE SO IM SORRY IF I LOOK OR SOUND CONDESCENDINGㅤㅤTONETAGS OPTIONALㅤㅤEXTREMELY HYPER AND CHILDISH IF WERE CLOSE + I WONT HESITATE TO CALL OUT THINGS THAT MAKES ME UPSET OR UNCOMFORTABLEㅤㅤVERY CLINGY AND AFFECTIONATE SO BE WARNEDㅤㅤI DO NOT WANT TO BE ASSOCIATED WITH ANY OLD PRICKS/GROUP IM APART OFF YEARS AGO ALONGSIDE DRAMA
+
+YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY BUT DO NOT USE ITㅤㅤMALAYSIANㅤㅤSHARK AZURGIRLㅤㅤAUTOROSEㅤㅤFICTOROSE + FICTOPOLYㅤㅤMASC/NEUTRAL TERMS PREFERRED + USE FEM TERMS IN MODERATIONㅤㅤALTHUMAN / OTHERKINㅤㅤIM AN ADULT BELOW 15 DNIUVCㅤㅤBLOCK/HIDE FREELY
+
+ㅤㅤㅤㅤㅤ<p align="center"> I CAN BE VERY BLUNT AND ROUGH WITH MY LANGUANGEㅤㅤI DO WEIRD/FLIRT/EXPLICIT JOKES TELL ME OFF IF THIS ISNT YOUR THINGㅤㅤAMBIVERTED + SOCIAL ANXIETYㅤㅤI AM PRONE TO AGGRESSIVE BEHAVIOR/ANGER TENDENCIES AND RAPID MOOD CHANGESㅤㅤI HAVE A HARD TIME TRUSTING PEOPLE BUT I AM NEVER MEAN OR RUDE ON PURPOSE SO IM SORRY IF I LOOK OR SOUND CONDESCENDINGㅤㅤTONETAGS OPTIONALㅤㅤEXTREMELY HYPER AND CHILDISH IF WERE CLOSE + I WONT HESITATE TO CALL OUT THINGS THAT MAKES ME UPSET OR UNCOMFORTABLEㅤㅤVERY CLINGY AND AFFECTIONATE SO BE WARNEDㅤㅤI DO NOT WANT TO BE ASSOCIATED WITH ANY OLD PRICKS/GROUP IM APART OFF YEARS AGO ALONGSIDE DRAMAㅤㅤI CAN BE FORGETTABLE ABOUT THINGS EVEN NAMES
 
 ㅤㅤㅤㅤㅤ<p align="right"> C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCUF + DO NOT SEND FRIEND/PARTY REQ UNLESS I KNOW YOUㅤㅤNEARLY ALL THE TIME OFFTAB SO PLEASE W2IㅤㅤHANG AROUND MAINLY AT DOCKS/WITH MOOTIESㅤㅤPLEASE DONT TAKE INSPO OF MY SKINS UNLESS IVE GIVEN CLEAR PERMISSIONㅤㅤPREFER TO TALK IN WHISPER/PARTY CHATS
   
@@ -81,7 +90,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHE LIKES LIO MORE THAN YOU MALA SUCK IT UPㅤㅤ
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
@@ -97,14 +106,14 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL
 <a href="https://github.com/embracethegrace">
   <img align="left" width="250" src="https://i.ibb.co/Dg78YtxJ/Untitled151-20260416173330.png">
 </a>
-A SINNER? ㅤㅤWELL EVERYONE ISNT A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
+A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <br clear="left" />  ㅤㅤ
 
 <p align="right"> <img src="https://files.catbox.moe/1fb8kh.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/cC6fpJY3/red.gif" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
  <a href="https://github.com/1969bootboy">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
-  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY? ㅤㅤSHITS AND GIGGLES! </p>
+  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY DO I? ㅤㅤHIS SHIT SMELLSSSS </p>
 <br clear="right" />
 
 <p align="center">
@@ -115,11 +124,12 @@ A SINNER? ㅤㅤWELL EVERYONE ISNT A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
   <img src="https://i.ibb.co/Qj8rBdc8/Untitled160-20260419211050.png" height="" width="500">
 </p> 
 
-<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤXAVIER ㅤㅤYUNA ㅤㅤLOO </p>
+<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤKITTY </p>
 <div align="center">
 
-[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/healthpen) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed)
+[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA)
 
+MY MOOT'S COOL ASS [LAB RP](https://github.com/BUGLABORATORIES)
 </div>
 
 > [!CAUTION]
